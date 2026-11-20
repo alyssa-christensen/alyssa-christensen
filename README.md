@@ -20,4 +20,6 @@ I have worked with AI systems every day since late 2022, and I run my business w
 - LinkedIn: https://www.linkedin.com/in/christensen2026
 - X: https://x.com/AlyssChris10
 - Newsletters: https://www.greenpulse-talent.com/newsletters
+- Substack: https://alyssachristensenai.substack.com
+- Medium: https://medium.com/@alyssa-christensen
 - Email: alyssa-c@greenpulse-talent.com
